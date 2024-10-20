@@ -1,0 +1,2 @@
+# Beauxbatons
+Academy of Magic
